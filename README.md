@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KronxyGaming //Also my Twitch: https://www.twitch.tv/kronxygaming !
+- 👀 I’m a powerlifting and acting (along with being a Twitch streamer) !
+- 🌱 I’m currently working towards my BA in Computer Science //Java programmer, but I really should be learning Python !
+- 📫 Reach me at my buisness email - Jaydason15@gmail.com !
