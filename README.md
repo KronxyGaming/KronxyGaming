@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @KronxyGaming (Jaydason Miller) // https://www.twitch.tv/kronxygaming !
 - 📫 Reach me at my buisness email - Jaydason15@gmail.com !
+- 🖥️ Pursuing a BA in Computer Science with a minor in Cybersecurity !
